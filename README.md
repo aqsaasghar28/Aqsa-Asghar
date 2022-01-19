@@ -1,0 +1,2 @@
+# Aqsa-Asghar
+This is Aqsa working as a full-time freelancer withholding more than 4 years of experience and different kinds of jobs in Lead Generation, Data Entry, Data scraping, Data Mining, Real Estate Email Work, Skip Tracing, etc. I also use premium tools to verify the emails as well as I use different tools to verify emails like Sales Navigator, ClearBit, Get Email, Email Hunter, Kendo, etc.
